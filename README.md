@@ -3,4 +3,6 @@
 1) https://www.promote.fun/campaigns [AI Clipping Campaigns]
 2) https://www.lionbridge.com/ [IDK how this works ?]
 3) https://babbletype.com/ [Typing Job ?]
-4) 
+4) https://www.peopleperhour.com/ [Typing job ?]
+5) https://www.transcribeme.com/ [Transcribtion job ?]
+6) 
